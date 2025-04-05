@@ -1,11 +1,11 @@
 # 【﻿Ｓｌｅｄｕｊｔｅ】Moře na dvoře (2025) C𝙴LÝ FI𝙻M 𝖮𝖭𝙻𝖨𝖭𝖤 𝖹𝖣𝙰𝖱𝖬𝖠 CZ/SK DAB𝙸NG
 𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎 Moře na dvoře (𝟸𝟶𝟸𝟻) 𝚘𝚗𝚕𝚒𝚗𝚎 𝚌𝚣 | Moře na dvoře 𝚌𝚎𝚕ý 𝚏𝚒𝚕𝚖 𝚘𝚗𝚕𝚒𝚗𝚎 č𝚎𝚜𝚔𝚘-𝚜𝚕𝚘𝚟𝚎𝚗𝚜𝚔á | Moře na dvoře 𝚏𝚒𝚕𝚖 𝚘𝚗𝚕𝚒𝚗𝚎 𝚌𝚣 𝚍𝚊𝚋𝚒𝚗𝚐 | 𝚏𝚒𝚕𝚖𝚢 Moře na dvoře 𝚌𝚣 𝚝𝚒𝚝𝚞𝚕𝚔𝚢 | Moře na dvoře 𝙾𝚗𝚕𝚒𝚗𝚎 𝙵𝚒𝚕𝚖 𝚜𝚔 | Moře na dvoře (𝟸𝟶𝟸𝟻) 𝙿𝚕𝚗ý 𝚏𝚒𝚕𝚖 𝚜𝚔 𝚍𝚊𝚋𝚒𝚗𝚐.
 
-[𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎🎬|✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe)
+[𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎🎬|✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe.github)
 
-[𝚂𝚝𝚊ž𝚎𝚗í 𝙷𝙳🎬 ✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe)
+[𝚂𝚝𝚊ž𝚎𝚗í 𝙷𝙳🎬 ✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe.github)
 
-[𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎🎬|✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe)
+[𝚂𝚕𝚎𝚍𝚞𝚓𝚝𝚎🎬|✮☛ Moře na dvoře - 𝙵i𝚕𝚖𝚢 𝚘𝚗𝚕𝚒𝚗𝚎 𝚣𝚍𝚊𝚛𝚖𝚊](https://crotx.online/sk/movie/1443594/moe-na-dvoe.github)
 
 𝚂𝚕𝚎𝚍𝚘𝚟𝚊𝚝 𝚌𝚎𝚕ý 𝚏𝚒𝚕𝚖 Moře na dvoře (𝟸𝟶𝟸𝟻) 𝚓𝚎 𝚊𝚔𝚝𝚞á𝚕𝚗ě 𝚗𝚎𝚓𝚘𝚋𝚕í𝚋𝚎𝚗ě𝚓ší𝚖 𝚏𝚒𝚕𝚖𝚎𝚖 𝚗𝚊 𝚟𝚢𝚑𝚕𝚎𝚍á𝚟𝚊𝚌í𝚖 𝚠𝚎𝚋𝚞 𝙶𝚘𝚘𝚐𝚕𝚎. 𝙵𝚒𝚕𝚖𝚢, 𝚔𝚝𝚎𝚛é 𝚓𝚜𝚘𝚞 𝚍𝚗𝚎𝚜 𝚟𝚎𝚕𝚖𝚒 𝚟𝚢𝚑𝚕𝚎𝚍á𝚟𝚊𝚗é 𝚖𝚒𝚕𝚘𝚟𝚗í𝚔𝚢 𝚏𝚒𝚕𝚖ů, 𝚏𝚒𝚕𝚖𝚢, 𝚔𝚝𝚎𝚛é 𝚓𝚎 𝚣á𝚋𝚊𝚟𝚗é 𝚜𝚕𝚎𝚍𝚘𝚟𝚊𝚝 𝚘 𝚟í𝚔𝚎𝚗𝚍𝚎𝚌𝚑 𝚜 𝚛𝚘𝚍𝚒𝚗𝚘𝚞, 𝚙řá𝚝𝚎𝚕𝚒 𝚊 𝚙ří𝚝𝚎𝚕𝚔𝚢𝚗ě𝚖𝚒. 𝙲𝚑𝚌𝚎𝚝𝚎-𝚕𝚒 𝚜𝚎 𝚣𝚋𝚊𝚟𝚒𝚝 𝚗𝚞𝚍𝚢, 𝚔𝚝𝚎𝚛á 𝚜𝚎 𝚟á𝚖 𝚜𝚝𝚊𝚗𝚎 𝚙𝚘 ú𝚗𝚊𝚟ě 𝚣 𝚙𝚛á𝚌𝚎.
 
